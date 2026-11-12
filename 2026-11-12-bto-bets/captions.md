@@ -4,8 +4,8 @@
 35,603 bets. 7,964 flats. Where did Singapore bet in the November BTO?
 
 Toa Payoh Hillside took more than 1 in 4 bets, even with the longest wait and the toughest rules.
-Sembawang had the shortest wait and the lowest prices. Its 5-room drew only 0.3 families per flat.
-Tengah's 2-room flats drew the most seniors and the most singles.
+Sembawang had the shortest wait and the cheapest 4-room. Its 5-room drew only 0.3 families per flat.
+Tengah's 2-room flats were the most crowded for seniors and for singles.
 Remember our Caldecott vs Mattar post? Mattar's 4-room reached 2.3 families per flat on HDB's last count.
 
 My guess? Location beats price. Buyers wait longer and accept tighter rules to live in the right place.
