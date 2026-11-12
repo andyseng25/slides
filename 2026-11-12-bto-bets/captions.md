@@ -6,7 +6,7 @@
 Toa Payoh Hillside took more than 1 in 4 bets, even with the longest wait and the toughest rules.
 Sembawang had the shortest wait and the lowest prices. Its 5-room drew only 0.3 families per flat.
 Tengah's 2-room flats drew the most seniors and the most singles.
-Remember our Caldecott vs Mattar post? Mattar's 4-room ended at 2.3 families per flat.
+Remember our Caldecott vs Mattar post? Mattar's 4-room reached 2.3 families per flat on HDB's last count.
 
 My guess? Location beats price. Buyers wait longer and accept tighter rules to live in the right place.
 
