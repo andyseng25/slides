@@ -1,7 +1,7 @@
 # HDB price-drop post: captions (scheduled Tue 17 Nov 2026, 9pm; revised 12 Nov to the property-carousel skill)
 
 ## Instagram (auto-shares to FB)
-19,500 HDB flats are free to sell in 2028. More than double 2025. Prices will drop, right?
+HDB prices sure drop, right? 19,500 flats are free to sell in 2028, more than double 2025.
 
 Not so fast. In 2021, even more flats were free to sell (25,530). Prices went up 12.7%.
 
@@ -24,7 +24,7 @@ Andy Seng (Seng Cher Chin) | PropNex Realty Pte Ltd | CEA Reg No: R058286J | Age
 #hdb #hdbresale #singaporeproperty #mop #sgproperty
 
 ## TikTok title
-Will HDB prices drop in 2028? 36 years of data
+HDB prices sure drop? 36 years of data
 
 ## TikTok (one paragraph)
-19,500 HDB flats are free to sell in 2028. Prices will drop? 2021 had even more, and prices went up 12.7%. Only 2 long drops in 36 years, and today has just 1 of the 4 signs. Selling? Comment BLOCK and I'll send your block's recent sales. HDB resale prices Singapore 2026. #hdb #singaporeproperty #hdbresale Source: HDB Resale Price Index; MND; HDB data via OrangeTee. Checked 8 Nov 2026. My opinion on public data, not a forecast. Andy Seng (Seng Cher Chin) | PropNex Realty Pte Ltd | CEA Reg No: R058286J | Agency Licence No: L3008022J | WhatsApp 9002 1510
+HDB prices sure drop? 19,500 flats are free to sell in 2028. But 2021 had even more, and prices went up 12.7%. Only 2 long drops in 36 years, and today has just 1 of the 4 signs. Selling? Comment BLOCK and I'll send your block's recent sales. HDB resale prices Singapore 2026. #hdb #singaporeproperty #hdbresale Source: HDB Resale Price Index; MND; HDB data via OrangeTee. Checked 8 Nov 2026. My opinion on public data, not a forecast. Andy Seng (Seng Cher Chin) | PropNex Realty Pte Ltd | CEA Reg No: R058286J | Agency Licence No: L3008022J | WhatsApp 9002 1510
