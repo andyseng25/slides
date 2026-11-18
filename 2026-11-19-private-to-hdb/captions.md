@@ -4,7 +4,7 @@
 
 Own private property and want an HDB flat? The 15-month wait is gone. These 6 resale rules aren't.
 
-1. Buy first, sell after, if you skip the HDB loan.
+1. No gap: sell and buy at the same time, no 15-month wait in between, if you skip the HDB loan. Buying first is allowed, but needs cash (rule 5).
 2. Everyone on the application sells their private property within 6 months. Landed homes and EC units count too.
 3. Bought on or after 4 Jul 2025? Selling within 4 years costs 4% to 16% stamp duty.
 4. No ABSD on the flat if one buyer is a Singapore citizen. All-PR buyers pay 5%.
@@ -25,4 +25,4 @@ Andy Seng (Seng Cher Chin) | PropNex Realty Pte Ltd | CEA Reg No: R058286J | Age
 Private property to HDB? 6 rules first
 
 ## TikTok caption (one paragraph)
-Own private property and want an HDB flat? The 15-month wait is gone, but 6 resale rules still apply, from a 6-month deadline to a 45% bank loan cap. Comment SWITCH and I'll send you recent sales in your development. sell condo buy HDB resale Singapore #singaporeproperty #hdbresale #condosingapore Source: HDB, IRAS, MAS, MND. Checked 18 Nov 2026. Not legal or financial advice. Andy Seng (Seng Cher Chin) | PropNex Realty Pte Ltd | CEA Reg No: R058286J | Agency Licence No: L3008022J | WhatsApp 9002 1510
+Own private property and want an HDB flat? The 15-month wait is gone, so you can sell and buy at the same time, but 6 resale rules still apply, from a 6-month deadline to a 45% bank loan cap. Comment SWITCH and I'll send you recent sales in your development. sell condo buy HDB resale Singapore #singaporeproperty #hdbresale #condosingapore Source: HDB, IRAS, MAS, MND. Checked 18 Nov 2026. Not legal or financial advice. Andy Seng (Seng Cher Chin) | PropNex Realty Pte Ltd | CEA Reg No: R058286J | Agency Licence No: L3008022J | WhatsApp 9002 1510
